@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Trello for Windows addon with Trello for Windows new Addon: team-assignment & integration-with-calendars. Featuring team-assignment and
 
 
 
